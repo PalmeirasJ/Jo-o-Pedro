@@ -1,2 +1,2 @@
-# Jo-o-Pedro
+# Joao Pedro
 j
